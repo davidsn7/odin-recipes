@@ -1,1 +1,1 @@
-Aici imi voi scrie planurile pentru prepararea shaormei!
+Nimic de vazut
